@@ -25,7 +25,7 @@ $\color{rgb(229, 214, 217)}{\textsf{The}}\color{rgb(144, 0, 0)} {\textsf{game}}\
   Press pixels below for socials
 </p>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Alt Text](https://github.com/user-attachments/assets/a9a288f1-8acc-4a9f-b717-57f396c061b4)](https://mysterysofvicodin.atabook.org/) ⠀[![Alt Text](https://github.com/user-attachments/assets/4982076b-a939-4a7f-83de-ab82ebdd3a94)](https://mysterysofvicodin.atabook.org/) ⠀[![Alt Text](https://github.com/user-attachments/assets/a9a288f1-8acc-4a9f-b717-57f396c061b4)](https://www.tiktok.com/@doctorof.diagnosis/)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Alt Text](https://github.com/user-attachments/assets/a9a288f1-8acc-4a9f-b717-57f396c061b4)](https://mysterysofvicodin.atabook.org/) ⠀[![Alt Text](https://github.com/user-attachments/assets/4982076b-a939-4a7f-83de-ab82ebdd3a94)](https://pronouns.cc/@Yourlocalweirdo/) ⠀[![Alt Text](https://github.com/user-attachments/assets/a9a288f1-8acc-4a9f-b717-57f396c061b4)](https://www.tiktok.com/@doctorof.diagnosis/)
 
 </p>
 <p align=center>
